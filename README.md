@@ -1,0 +1,2 @@
+# PROYECTO-Plan-Estrat-gico-de-Marketing-PEM-Mu-oz-y-Pujante-SL
+Desarrollo de un plan integral con análisis de mercado y diseño de estrategias viables de expansión internacional, apertura de canales B2B y nuevos productos para una empresa murciana de especias y condimentos. Ejecución de auditorías internas y benchmarking de competidores para respaldar la toma de decisiones y la planificación financiera.
